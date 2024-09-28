@@ -1,1 +1,1 @@
-# osmotr63.multigramen.ru
+# osmotr63.ru
